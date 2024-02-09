@@ -1,4 +1,4 @@
-👋Hi, I'm **Priscilla Nkechi Egbo.**  
+👋Hi, I'm ***Priscilla Nkechi Egbo.***  
 
 A graduate of University of Calabar.
 I studied **Policy Studies and Administration.**
