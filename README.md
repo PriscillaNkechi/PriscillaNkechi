@@ -16,9 +16,9 @@ for business growth 💹 and expansion using data
 analytics methods and tools.
 
 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/priscilla-nkechi-egbo-57bb39267)
+
 [Twitter](https://twitter.com/PriscillaNkechi?t=nRr6R3KTuu5uNrhmoXC_Kg&s=08)
 
-Twitter
 
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: ...
