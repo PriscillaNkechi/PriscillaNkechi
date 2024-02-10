@@ -19,9 +19,9 @@ analytics methods and tools.
 
 [Twitter](https://twitter.com/PriscillaNkechi?t=nRr6R3KTuu5uNrhmoXC_Kg&s=08)
 
-
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: ...
+  
+- ⚡ Fun fact: Making Yogurt and drinking Yogurt.😆
 
 <!---
 PriscillaNkechi/PriscillaNkechi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
